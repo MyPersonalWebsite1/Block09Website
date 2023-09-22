@@ -1,3 +1,2 @@
 # Block09Website
-Test!
-funny, interesting, ambicious 
+LA palte 2, HABLEN CLAROOO
